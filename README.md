@@ -1,1 +1,1 @@
-# -Mi-entorno-anal-tico-
+# -Mi-entorno-analitico-
